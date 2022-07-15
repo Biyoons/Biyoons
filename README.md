@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Biyoons
 - 👀 I’m interested in Music
-- 🌱 I’m currently learning Codding and English
+- 🌱 I’m currently learning Codding, English, German and Computer Engineering in University
 - 💞️ I’m looking to collaborate on I don't know
 - 📫 How to reach me I don't know
 
